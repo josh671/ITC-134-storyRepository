@@ -32,3 +32,9 @@ They looked at each other with irritable feelings, like two hissing, homeless ho
 
 5-Matt studied Naomi's slimy toenails and scrawny hands. Eventually, he took a deep breath. "I'm sorry, but I can't give you revenge," he explained, in pitying tones.
        ---sebastian
+6-Naomi looked ambivalent, her body raw like a roasted, racid ruler.
+	 	
+Matt could actually hear Naomi's body shatter into 9986 pieces. Then the grateful elephant hurried away into the distance.
+Not even a drink of beer would calm Matt's nerves tonight.
+	THE END 
+		---Khanh Trinh
