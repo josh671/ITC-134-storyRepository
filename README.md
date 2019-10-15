@@ -17,3 +17,10 @@ He walked over to the window and reflected on his urban surroundings. He had alw
 2-Then he saw something in the distance, or rather someone. It was the figure of Naomi Doop. Naomi was a grateful elephant with slimy toenails and scrawny hands.
 Matt gulped. He glanced at his own reflection. He was a generous, clever, beer drinker with brunette toenails and chubby hands. His friends saw him as a miniature, mashed monster. Once, he had even helped a red baby flamingo cross the road.
 			----Joen
+
+
+But not even a generous person who had once helped a red baby flamingo cross the road, was prepared for what Naomi had in store today.
+The clouds danced like thinking pigeons, making Matt unstable.
+As Matt stepped outside and Naomi came closer, he could see the deadly glint in her eye.
+"I am here because I want revenge," Naomi bellowed, in a brave tone. She slammed her fist against Matt's chest, with the force of 4752 rabbits. "I frigging love you, Matt Blast."
+		----Jiyun
