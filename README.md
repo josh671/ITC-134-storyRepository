@@ -28,3 +28,7 @@ As Matt stepped outside and Naomi came closer, he could see the deadly glint in 
 Matt looked back, even more unstable and still fingering the warped record. "Naomi, I don't have the money," he replied.
 They looked at each other with irritable feelings, like two hissing, homeless horses jogging at a very smart accident, which had reggae music playing in the background and two creepy uncles running to the beat.
 		---Kevin
+
+
+5-Matt studied Naomi's slimy toenails and scrawny hands. Eventually, he took a deep breath. "I'm sorry, but I can't give you revenge," he explained, in pitying tones.
+       ---sebastian
