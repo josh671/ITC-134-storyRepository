@@ -24,3 +24,7 @@ The clouds danced like thinking pigeons, making Matt unstable.
 As Matt stepped outside and Naomi came closer, he could see the deadly glint in her eye.
 "I am here because I want revenge," Naomi bellowed, in a brave tone. She slammed her fist against Matt's chest, with the force of 4752 rabbits. "I frigging love you, Matt Blast."
 		----Jiyun
+
+Matt looked back, even more unstable and still fingering the warped record. "Naomi, I don't have the money," he replied.
+They looked at each other with irritable feelings, like two hissing, homeless horses jogging at a very smart accident, which had reggae music playing in the background and two creepy uncles running to the beat.
+		---Kevin
